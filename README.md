@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @dhanrajahire24
-- 👀 I’m addicted to success.
-- 🌱 I’m currently learning *
-- 💞️ I’m looking to collaborate on  TMT.
+- 🌱 Tell me and I forget, teach me and I may remember, involve me and I learn, so your involvment are also important.
+- 💞️ I’m looking to collaborate with you on the way of success.
 - 📫 How to reach me 
 
 <!---
